@@ -1,1 +1,1 @@
-# MoneyStation-Privacy-Policy
+MoneyStation Privacy Policy
